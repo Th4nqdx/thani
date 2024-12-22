@@ -1,1 +1,1 @@
-about myself skill contact
+about myself
